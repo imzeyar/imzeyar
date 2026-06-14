@@ -1,6 +1,6 @@
 # Hi, I'm Zeyar 👋
 
-**Senior Software Engineer & Team Lead | 14+ Years Experience**  
+**Software Engineer**  
 📍 Da Nang, Vietnam  🌏 Open to Remote Full-Time
 
 ---
